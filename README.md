@@ -1,1 +1,1 @@
-# Winder-s Privacy Policy
+# Privacy policy for Mobile Users
